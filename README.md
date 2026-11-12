@@ -1,0 +1,1 @@
+# tabiat-posbonlari-o-yini
